@@ -1,6 +1,8 @@
 # Willkommen / Welcome / ようこそ
 
-![background](https://github.com/klaus-moser/klaus-moser/assets/60796711/70397772-1256-4ced-8b28-9fbc7e4b57f2)
+![background](https://github.com/tg4nd4lf/tg4nd4lf/assets/60796711/46640991-6940-46cb-b3bf-b31d7c670d71)
+
+[Picture Source](https://www.cbr.com/gandalfs-best-quotes-from-lotr-and-the-hobbit/)
 
 [Linkedin](https://www.linkedin.com/in/klaus-moser-089/) • [Website](https://pan-galactic-gargle-blaster.de/)
 
